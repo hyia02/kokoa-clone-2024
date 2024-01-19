@@ -1,3 +1,3 @@
 # Kokoa clone 2024
 
-hi! i'm conqueror.
+i love Suisei!
